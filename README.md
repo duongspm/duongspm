@@ -2,7 +2,8 @@
  -s 🌱 I’m currently learning Software Technology at Thu Dau Mot university
 - 💞️ I’m looking to collaborate on github
 - 📫 How to reach me in here:
-- Youtube: https://www.youtube.com/channel/UCvXij5ArMkI6FDcwn62b68APlease 
+- Youtube: https://www.youtube.com/channel/UCvXij5ArMkI6FDcwn62b68A
+- Please 
  <3 Help my youtube channel be monetized <3
 
 <!---
